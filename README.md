@@ -1,2 +1,0 @@
-# CvDavid
-DPW EXAMEN
